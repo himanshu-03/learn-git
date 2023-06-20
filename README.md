@@ -1,4 +1,4 @@
 ## Summer Interns
 
 
-Hello  Interns!
+Hello interns!
